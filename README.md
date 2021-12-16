@@ -1,0 +1,1 @@
+# Locks-Mall-Privacy-policy
